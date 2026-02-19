@@ -30,6 +30,7 @@ Halo! Saya Thoriq Muhammad Hafidz
 Seorang Data Analyst sekaligus Pelatih Taekwondo yang bersemangat menggabungkan disiplin, analitik, dan strategi untuk mendukung pertumbuhan bisnis maupun pengembangan individu.
 
 instagram : @thoriqhafidz_
+
 linkedin : https://www.linkedin.com/in/thoriqhafidz
 
     
