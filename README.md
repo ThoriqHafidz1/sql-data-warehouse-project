@@ -36,7 +36,9 @@ CV : https://drive.google.com/file/d/1Nhs30Yht-v9vZYXNV2TixrghpjcwDMqg/view?usp=
 Portofolio : https://drive.google.com/drive/u/0/folders/1zWctgV4VnlVSksyk72O4L_X9CQnz2CbR
 
 About me :
+
 instagram : @thoriqhafidz_
+
 linkedin : https://www.linkedin.com/in/thoriqhafidz
 
     
