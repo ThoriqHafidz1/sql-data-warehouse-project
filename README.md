@@ -30,6 +30,7 @@ Halo! Saya Thoriq Muhammad Hafidz
 Seorang Data Analyst sekaligus Pelatih Taekwondo yang bersemangat menggabungkan disiplin, analitik, dan strategi untuk mendukung pertumbuhan bisnis maupun pengembangan individu.
 
 OPEN TO WORK as Junior Data Analyst / Junior Data Engineer
+
 CV : https://drive.google.com/file/d/1Nhs30Yht-v9vZYXNV2TixrghpjcwDMqg/view?usp=sharing
 
 Portofolio : https://drive.google.com/drive/u/0/folders/1zWctgV4VnlVSksyk72O4L_X9CQnz2CbR
